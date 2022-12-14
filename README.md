@@ -1,0 +1,2 @@
+# kodluoruzilkrope
+ödev 1
